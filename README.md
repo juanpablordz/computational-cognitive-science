@@ -1,3 +1,3 @@
 # computational-cognitive-science
 
-[Lectures](https://drive.google.com/drive/folders/1lswNifmHe2lQ4sb12p00EF_9N5R_vQlp?usp=sharing)
+[Lectures](https://mitprod-my.sharepoint.com/:f:/g/personal/jpablo_mit_edu/EmwmcdHcIg5Mn3UTsc6XWNQBF-XobelpDEcUJ2ftcuWb2w?e=4wGiMB)
